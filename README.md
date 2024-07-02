@@ -7,7 +7,7 @@
 - 📫 How to reach me: sriramprasath615@gmail.com
 
 ### Connect with me:
-[![LinkedIn](https://www.linkedin.com/in/sri-ram-prasath-d-685770226/))
+[![LinkedIn](https://www.linkedin.com/in/sri-ram-prasath-d-685770226/)]
 
 
 ### My Skills:
